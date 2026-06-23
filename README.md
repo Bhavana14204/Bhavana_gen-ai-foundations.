@@ -1,1 +1,1 @@
-Bhavnan_Gen-AI-Foundation
+Bhavana_Gen-AI-Foundation
